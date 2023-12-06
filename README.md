@@ -1,1 +1,0 @@
-# ifreqteq.github.io
